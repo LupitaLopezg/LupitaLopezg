@@ -4,5 +4,4 @@
 - 🌱 I’m currently learning Kazakh Language
 - 👯 I’m looking to collaborate with other engineers
 - 📫 How to reach me: Lupitalopez@hotmail.com
-- 😄 Pronouns: She
 - ⚡ Fun fact: Love basquetball but not practicing much
